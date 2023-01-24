@@ -1,5 +1,5 @@
 - 👋 Opa, eu sou o @KevenFelixDaSilva
-- 👀 Atualmente concluo o terceiro ano do ensino médio
+- 👀 Atualmente concluo o segundo ano do ensino médio
 - 📚 Estou cursando técnico em desenvolvimento de sistemas
 - 📞 Contate-me email: keven.05@hotmail.com
 
